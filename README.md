@@ -1,1 +1,1 @@
-# isghuman.github.io Pizza is very Italian and that's a fact.
+# isghuman.github.io Welcome to the website of UWS Blitzball!
